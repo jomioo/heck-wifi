@@ -1,3 +1,0 @@
-Heck wifi 
-
-Bagus 
